@@ -1,0 +1,1 @@
+Jospin is tired
